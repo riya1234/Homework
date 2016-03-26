@@ -15,3 +15,6 @@ They run they play they hide, but there is more to these adorable creatures...
 Created by Riya.
 
 [For More info about Dogs, Click here!](https://kids.usa.gov/watch-videos/jobs/dog-trainer/index.shtml)
+
+[![IMAGE ALT TEXT HERE](https://www.youtube.com/watch?v=qxoXvn2l2gA)](http://www.youtube.com/watch?v=YOUTUBE_VIDEO_ID_HERE)
+
